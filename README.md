@@ -7,4 +7,4 @@ Up to date list of icons for UK Freeview television
 
 Up-to-date as of 24th May 2020
 
-NO ETA on updates and, but I will be updating time to time.
+NO ETA on updates, but I will be updating time to time.
